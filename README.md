@@ -1,6 +1,6 @@
-# Modul_Statistik
+# Modul_Statistik pek
 
-punya fafa ....
+punya lutfeee
 
 
-- Juna kece
+- Juna kece bangettt pake t
