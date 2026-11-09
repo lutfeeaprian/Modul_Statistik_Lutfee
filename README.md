@@ -1,6 +1,6 @@
 # Modul_Statistik
 
-punya fafa ....
+punya Lutfee ....
 
 
-- Juna kece
+- Juna kece bangeettttt
